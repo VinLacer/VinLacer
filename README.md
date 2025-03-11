@@ -6,7 +6,7 @@
  
 👤About me:
 
-❖ I'm 24 years old living in Curitiba, Paraná - Brazil.
+❖ I'm 25 years old living in Curitiba, Paraná - Brazil.
 
 ❖ I'm a Eletronic Engineering stundent at Technological Federal University of Paraná.
 
